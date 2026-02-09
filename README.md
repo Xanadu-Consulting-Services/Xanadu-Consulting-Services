@@ -43,14 +43,14 @@ Accomplished Social Worker, Employee Wellbeing Consultant and Psychosocial Thera
 *May 2011 – May 2017*  
 
 **Social Worker**  
-*SANCA – Zululand & Empangeni | Children’s Services (UK)*  
-*KZN Blind & Deaf Society | Child & Family Welfare*  
+*SANCA Zululand | AIDS TRAINING CENTRE (ATICC) Empangeni / City of uMhlathuze 
+*Empangeni Child & Family Welfare | KZN Blind & Deaf Society | Children's Services UK 
 *1992 – 2011*  
 
 **Earlier Roles:**  
 - Private Social Worker (Hospitals & Clinics)  
-- Social Worker / Counsellor Mentor – City of uMhlathuze (ATICC)  
-- Educator & School Counsellor – Senior Primary  
+- Counsellor Mentor to Lay Counsellors (Department of Health)
+- Educator & School Counsellor – (Senior Primary)  
 
 ---
 
