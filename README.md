@@ -1,4 +1,4 @@
-## Hi there I'm Rheka Singh👋
+# Hi there I'm Rheka Singh👋
 
 ---
 
@@ -97,5 +97,3 @@ Extensive accredited training (1992–2025) in:
 
 ## 📌 References  
 Available on request  
-
----that highlights specific wellness programmes, training modules, or community initiatives you’ve led? That could make it even more engaging for people browsing your profile.
