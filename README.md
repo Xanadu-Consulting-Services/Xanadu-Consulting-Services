@@ -1,4 +1,4 @@
-# Hi there I'm Rheka Singh👋
+# Rheka Singh👋
 
 ---
 
@@ -10,9 +10,7 @@
 ---
 
 ## 👩‍⚕️ Professional Profile  
-Experienced Social Worker, Employee Wellbeing Consultant, and Psychosocial Therapist with **30+ years of practice** across clinical, corporate, community, and educational settings in South Africa and the UK. Skilled in designing and implementing **employee wellness programmes**, conducting **psychosocial assessments**, delivering **counselling and training**, and managing projects that foster resilience, wellbeing, and organisational health.  
-
-I bring a **trauma-informed, evidence-based, and systems-focused approach** to supporting individuals, families, organisations, and vulnerable populations.  
+Accomplished Social Worker, Employee Wellbeing Consultant and Psychosocial Therapist with over 30 years of experience across clinical, corporate, community and educational environments in South Africa and the UK. Demonstrated expertise in designing and delivering employee wellness programmes, conducting psychosocial assessments, providing therapeutic counselling, facilitating training, and leading community development initiatives. Adept at supporting individuals, families, organisations and vulnerable groups through evidence-based, trauma‑informed and systems-oriented interventions. Recognised for strong interpersonal skills, cross‑sector versatility and a deep commitment to holistic wellbeing and organisational resilience.
 
 ---
 
