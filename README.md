@@ -1,16 +1,101 @@
-## Hi there 👋
+## Hi there I'm Rheka Singh👋
 
-<!--
-**Xanadu-Consulting-Services/Xanadu-Consulting-Services** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+---
 
-Here are some ideas to get you started:
+# Employee Wellbeing Consultant | Psychosocial Therapist | Social Worker  
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+**Pretoria, South Africa**  
+📞 +27 81 512 8600 | ✉️ kanayerheka@gmail.com   
+
+---
+
+## 👩‍⚕️ Professional Profile  
+Experienced Social Worker, Employee Wellbeing Consultant, and Psychosocial Therapist with **30+ years of practice** across clinical, corporate, community, and educational settings in South Africa and the UK. Skilled in designing and implementing **employee wellness programmes**, conducting **psychosocial assessments**, delivering **counselling and training**, and managing projects that foster resilience, wellbeing, and organisational health.  
+
+I bring a **trauma-informed, evidence-based, and systems-focused approach** to supporting individuals, families, organisations, and vulnerable populations.  
+
+---
+
+## 🛠️ Core Competencies  
+- Psychosocial Assessments & Therapeutic Interventions  
+- Individual, Couple, Family & Group Counselling  
+- Employee Assistance Programmes (EAP)  
+- Mental Health, Addiction & Trauma Care  
+- Training, Facilitation & Wellness Workshops  
+- Corporate Wellness & Organisational Support  
+- Community Development & CSI Programmes  
+- Project & Programme Management  
+- Report Writing & Professional Documentation  
+
+---
+
+## 💼 Professional Experience  
+
+**Employee Wellbeing Consultant / Psychosocial Therapist**  
+*Xanadu Consulting Services – Self-Employed | Pretoria*  
+*June 2021 – Present*  
+
+**Employee Wellness Practitioner**  
+*CTW – Counselling, Training & Wellness | Richards Bay*  
+*Jun 2017 – May 2021*  
+
+**Director / Facilitator – Life Skills & Job Placement**  
+*Thembekile Engineering & Welding School | Richards Bay*  
+*Sep 2014 – Mar 2020*  
+
+**Employee Wellness Practitioner**  
+*Affiliate Consultant: ICAS, Kaelo, Proactive Health Solutions, Careways*  
+*Empangeni Garden Clinic & Prime Cure Clinic*  
+*May 2011 – May 2017*  
+
+**Social Worker**  
+*SANCA – Zululand & Empangeni | Children’s Services (UK)*  
+*KZN Blind & Deaf Society | Child & Family Welfare*  
+*1992 – 2011*  
+
+**Earlier Roles:**  
+- Private Social Worker (Hospitals & Clinics)  
+- Social Worker / Counsellor Mentor – City of uMhlathuze (ATICC)  
+- Educator & School Counsellor – Senior Primary  
+
+---
+
+## 🌍 Key Areas of Practice  
+- Depression, Anxiety, Trauma & Bereavement  
+- Substance Abuse & Behavioural Addictions  
+- HIV/AIDS, Chronic Illness & Disability  
+- Workplace Conflict, Stress & Burnout  
+- Parenting, Adolescents & Family Reconstruction  
+- Gender-Based Violence & Human Trafficking  
+- Leadership, Diversity & Psychological Safety  
+
+---
+
+## 🎓 Education  
+**Bachelor of Arts (Social Work)**  
+*University of KwaZulu-Natal (formerly University of Durban-Westville)*  
+
+---
+
+## 📚 Professional Development  
+Extensive accredited training (1992–2025) in:  
+- HIV/AIDS, Substance Abuse, Trauma Counselling  
+- Employee Wellbeing & Leadership  
+- Dialectical Behaviour Therapy (DBT)  
+- Parenting, Diversity & Human Rights  
+- Business Management & Social Entrepreneurship  
+
+---
+
+## 🌐 Languages  
+- English (Fluent)  
+- Afrikaans  
+- isiZulu  
+- Hindi (Basic)  
+
+---
+
+## 📌 References  
+Available on request  
+
+---that highlights specific wellness programmes, training modules, or community initiatives you’ve led? That could make it even more engaging for people browsing your profile.
