@@ -43,7 +43,7 @@ Accomplished Social Worker, Employee Wellbeing Consultant and Psychosocial Thera
 *May 2011 – May 2017*  
 
 **Social Worker**  
-*SANCA Zululand | AIDS TRAINING CENTRE (ATICC) Empangeni / City of uMhlathuze 
+SANCA Zululand | AIDS TRAINING CENTRE (ATICC) Empangeni / City of uMhlathuze 
 *Empangeni Child & Family Welfare | KZN Blind & Deaf Society | Children's Services UK 
 *1992 – 2011*  
 
