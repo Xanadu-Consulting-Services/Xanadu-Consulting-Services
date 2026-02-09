@@ -1,4 +1,3 @@
-# Rheka Singh
 # Employee Wellbeing Consultant | Psychosocial Therapist | Social Worker  
 
 **Pretoria, South Africa**  
